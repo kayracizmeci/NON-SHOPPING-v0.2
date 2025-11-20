@@ -1,0 +1,1 @@
+# NON-SHOPPING-v0.2
